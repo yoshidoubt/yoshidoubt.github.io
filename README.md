@@ -1,0 +1,1 @@
+# yoshidoubt.github.io
